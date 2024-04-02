@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Matheusr Rodrigues Pereira😁
+## Bem-vindo(a) ao perfil do Matheus Rodrigues Pereira😁
 
  <div>
    <a href="https://github.com/Matheusrp1908">
